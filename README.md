@@ -1,0 +1,1 @@
+# auto_eq_2022_cur_pol
